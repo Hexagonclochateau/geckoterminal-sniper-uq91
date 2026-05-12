@@ -1,4 +1,4 @@
-# 
+# Get the ultimate birdeye sniper bot with birdeye sniper bot MEV-optimized Bot - trailing-stop and pump-detection. Featuring trailing-stop and pump-detection, it's the best choice
 
 
 
